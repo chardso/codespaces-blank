@@ -31,11 +31,11 @@ Junior Express Vocational Training School is about 2kms away from Adjumani Town 
 
 The school have administrative and technical personnel's delivering services effectively to the vulnerable communities. 
 
+![](images/director's_office.jpg)
 
 
 
-
-
+**Director:Mrs Lakonyi Janet**
 
 
 
