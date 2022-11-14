@@ -37,10 +37,10 @@ The school have administrative and technical personnel's delivering services eff
 
 **Director:Mrs Lakonyi Janet**
 
+![](images/instructor_mechanic.jpg)
 
 
-
-
+**Instructor for mechanics:Mr ceaser mahad**
 
 
 The school have basic tools and equipment’s in all the trades offered, the permanent and pre-permanent learning structures (building) including accommodation are available.
