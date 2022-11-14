@@ -49,3 +49,4 @@ The school have basic tools and equipment’s in all the trades offered, the per
 ![](images/mechanics_resource.jpg)
 
 **Driving and mechanics**
+![](images/tailo_desigs.jpg)
