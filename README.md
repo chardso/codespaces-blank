@@ -53,4 +53,4 @@ The school have basic tools and equipment’s in all the trades offered, the per
 ![](images/tailor4.jpg)
 ![](images/tailor3.jpg)
 **Tailoring**
-![]()
+![](images/carpentry_store.jpg)
