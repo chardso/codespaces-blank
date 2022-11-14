@@ -17,6 +17,15 @@ Junior Express Vocational Training School is about 2kms away from Adjumani Town 
 
 
 
+
+
+![](images/view_from_gate.jpg)
+
+
+
+
+
+
 **Photo credit: wafela andrew chardso (LEAD)**
 
 
