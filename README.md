@@ -44,3 +44,5 @@ The school have administrative and technical personnel's delivering services eff
 
 
 The school have basic tools and equipment’s in all the trades offered, the permanent and pre-permanent learning structures (building) including accommodation are available.
+![](images/driving_tool.jpg)
+**Driving and mechanics**
