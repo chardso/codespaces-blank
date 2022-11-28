@@ -56,3 +56,4 @@ The school have basic tools and equipment’s in all the trades offered, the per
 ![](images/carpentry_store.jpg)
 ![](images/store.jpg)
 **Carpentry and joinnery** 
+# Challenges 
