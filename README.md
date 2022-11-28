@@ -56,6 +56,9 @@ The school have basic tools and equipment’s in all the trades offered, the per
 ![](images/carpentry_store.jpg)
 ![](images/store.jpg)
 **Carpentry and joinnery** 
+# Registration
+- Junior Express Vocational Training School was registered by the Business Names Registration Act in 1993 number 80010002120616. The school as well registered with the Directorate of Industrial Training number: UG92580A issued under section 14 subsection (e) of the BTVET Act, 2008) ISO 9001:2015. Centre Number: UVQF/1209.
+
 # Challenges facing the school 
 - Inadequate structures and poor conditions of building structures: there is need to put more building structures and shades for training.
 
