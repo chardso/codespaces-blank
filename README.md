@@ -56,8 +56,7 @@ The school have basic tools and equipment’s in all the trades offered, the per
 ![](images/carpentry_store.jpg)
 ![](images/store.jpg)
 **Carpentry and joinnery** 
-# Challenges 
-*Key challenges/gaps* 
+# Challenges facing the school 
 - Inadequate structures and poor conditions of building structures: there is need to put more building structures and shades for training.
 
 - Inadequate tools: Junior Express Vocational School do not have enough tools and equipment for training the vulnerable community. There is need to support the school with tools and equipment on the various sectors.
