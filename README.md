@@ -61,6 +61,8 @@ The school have basic tools and equipment’s in all the trades offered, the per
 
 - Inadequate tools: Junior Express Vocational School do not have enough tools and equipment for training the vulnerable community. There is need to support the school with tools and equipment on the various sectors.
 
-- Lack of funds for training materials. The school need financial support to purchase training materials.
+- Lack of funds for training materials. The school need financial support to purchase training materials and facilitation of the school staffs eg in the department of hair dressing and carpentry,we have materials but unable to sustain instructors due to inadequate funds at hand.
+
+- Further more we plan to introduce computer training and electronic repair but we lack tools, materials and gadgets like computers.
 
 - Economic situation: High prices of commodities have affected the smooth operation of the school because the school can not afford to buy other important tools and equipment.
